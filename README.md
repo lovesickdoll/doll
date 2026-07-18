@@ -11,7 +11,7 @@
 
 <sub> ![me](https://github.com/lovesickdoll/lovesickdoll/blob/04f3a13d13575d024952d7fc8d1eba6835fa9300/6en8tv.png)
 <p align=center>
-${\text{\color{#CED3D2} ιnterαct \color{#95BCD7}﹒♡ \color{#3665B8}  ۫   ꒰  ωιth  ꒱   \color{#02243F}   cαre ݁
+${\text{\color{#DAD8D1} ιnterαct \color{#DAD8D1}﹒♡ \color{#BFCDD3}  ۫   ꒰  ωιth  ꒱   \color{#A8C3D6}   cαre ݁
 }}$</sub> </p>
 
 <p align=center> </sub>${\text{\color{#D4D5E2} w6nyoung on dis⑅cord }}$</sub> </p>
