@@ -4,5 +4,5 @@
 
 <sub> ![me](Untitled51_20260718122858.png)
 <p align=center>
-${\text{\color{#EBACC3} ιnterαct \color{#BD72A3}﹒♡ \color{#AC6A9E}  ۫   ꒰  ωιth  ꒱   \color{#805F8F}   cαre ݁
+${\text{\color{#BB95DA} ιnterαct \color{#8C68AC}﹒♡ \color{#4F4F7D}  ۫   ꒰  ωιth  ꒱   \color{#302E51}   cαre ݁
 }}$</sub> </p>
