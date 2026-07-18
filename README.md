@@ -1,4 +1,5 @@
-<p align=center> ˖    —    ۫ hi𝓈   ˳hιme    ݂princes𝓈 ۪  ۫ ⊹   
+<p align=center>
+</sub>${\text{\color{#C872A4} ˖    —    ۫ hi𝓈  \color{#EB95BA}˳hιme   \color{#EBB5C6} ݂princes𝓈 ۪  ۫ ⊹   }}$</sub> </p>
 
 
 <sub> ![me](Untitled51_20260718111920.png)
