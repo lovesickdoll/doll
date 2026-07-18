@@ -1,3 +1,3 @@
 <p align=center>
-<sub>${\text{\color{#BD72A3}                         ιnterαct ﹒♡ \color{#805F8F}  ۫   ꒰  ωιth  ꒱   \color{#EBACC3}   cαre ݁
+<sub>${\text{\color{#805F8F}                         ιnterαct \color{#AC6A9E}﹒♡ \color{#BD72A3}  ۫   ꒰  ωιth  ꒱   \color{#EBACC3}   cαre ݁
 }}$</sub> </p>
