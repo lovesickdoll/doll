@@ -8,4 +8,4 @@ ${\text{\color{#BB95DA} ιnterαct \color{#8C68AC}﹒♡ \color{#4F4F7D}  ۫   �
 }}$</sub> </p>
 
 <p align=center> </sub>${\text{\color{#E2E3ED} w6nyoung on dc :3 }}$</sub> </p>
-<sub> <p align=center> </sub>${\text{\color{#57415C} @cervusminor n @khae-rin my fav cuddle buddies }}$</sub> </p>
+<sub> <p align=center> 
