@@ -15,3 +15,5 @@ ${\text{\color{#CED3D2} ιnterαct \color{#95BCD7}﹒♡ \color{#3665B8}  ۫   �
 <sub> <p align=center> 
 
 ![divv](https://github.com/lovesickdoll/lovesickdoll/blob/193451f74d0b59e726ea8b882406b8b6f88180b3/p3lr71.png)
+
+<p align=center> <a href="https://angelfox.atabook.org/">书ata</a> ⑅ <a href="https://rentry.co/softbunie">rentry ♡</a>
