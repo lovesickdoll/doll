@@ -6,7 +6,7 @@
 <p align=center>
 </sub>${\text{\color{#80B2D9} ˖    —    ۫ hi𝓈  \color{#9BBED7}˳hιme   \color{#C3CED3} ݂princes𝓈 ۪  ۫ ⊹   }}$</sub> </p>
 
-<p align=center> <a href="https://angelfox.atabook.org/">书ata</a> ⑅ <a href="https://rentry.co/softbunie">rentry ♡</a>
+<p align=center> ݂  ۫<a href="https://angelfox.atabook.org/">书ata</a> ⑅̣̣̣⑅ <a href="https://rentry.co/softbunie">rentry ♡</a> ˳    ˖ 
 
 
 <sub> ![me](https://github.com/lovesickdoll/lovesickdoll/blob/04f3a13d13575d024952d7fc8d1eba6835fa9300/6en8tv.png)
