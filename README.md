@@ -17,5 +17,7 @@ ${\text{\color{#CED3D2} ιnterαct \color{#95BCD7}﹒♡ \color{#3665B8}  ۫   �
 <p align=center> </sub>${\text{\color{#D4D5E2} w6nyoung on dis⑅cord }}$</sub> </p>
 <sub> <p align=center> 
 
+<sub> <p align=center> </sub>${\text{\color{#9DBFD7} c+h is always encouraged! (please dnc my ponies.) }}$</sub> </p>
+
 ![divv](https://github.com/lovesickdoll/lovesickdoll/blob/193451f74d0b59e726ea8b882406b8b6f88180b3/p3lr71.png)
 
