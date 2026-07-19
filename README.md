@@ -17,7 +17,7 @@ ${\text{\color{#DAD8D1} ιnterαct \color{#DAD8D1}﹒♡ \color{#BFCDD3}  ۫   �
 <p align=center>
 </sub>${\text{\color{#80B2D9} w6nyoung \color{#9BBED7} on   \color{#C3CED3} dis⁠⑅cord  }}$</sub> </p>
 
-<sub> <p align=center> c+h is always encouraged!
+<sub> <p align=center> c+h is always ![en](https://img.shields.io/badge/encouraged_!-EBDFCF) :)
 
 ![divv](https://github.com/lovesickdoll/lovesickdoll/blob/193451f74d0b59e726ea8b882406b8b6f88180b3/p3lr71.png)
 
